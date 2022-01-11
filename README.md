@@ -1,2 +1,2 @@
 **Landing Page:**
-![Imgur](https://imgur.com/zIsQlSo.png)
+![Imgur](https://i.imgur.com/L8hKSCb.png)
